@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Blisotrax
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning minetopia
+- 📫 How to reach me: Blisotrax#6998
